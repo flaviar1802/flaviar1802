@@ -12,4 +12,4 @@ flavia.rodrigues.rocha@escola.pr.gov.br
 
 @flaviarrodrigues_
 
-![](https://media.tenor.com/h5WE2RGoIE4AAAAd/concentrate-focus.gif)
+![](https://media.tenor.com/o5-5sYmgcm0AAAAC/stranger-things.gif)
